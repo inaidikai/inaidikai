@@ -11,7 +11,7 @@
 If you like what I do or want to collaborate/freelance, reach out:
 
 📧 [kaharinsha@gmail.com ](mailto:kaharinsha@gmail.me)  
-🌐 [GitHub](https://github.com/inaidikai) | [LinkedIn]([https://www.linkedin.com/in/insha-kahar-7a2013294/])
+🌐 [GitHub](https://github.com/inaidikai) | [LinkedIn](https://www.linkedin.com/in/insha-kahar-7a2013294/)
 
 ---
 
